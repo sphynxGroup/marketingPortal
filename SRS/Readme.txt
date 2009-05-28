@@ -1,1 +1,0 @@
-Portal to advertise those businesses that are subscribed to this application.
